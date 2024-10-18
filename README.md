@@ -1,1 +1,1 @@
-starofthelove.github.io
+Starofthelove.github.io
